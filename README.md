@@ -1,4 +1,7 @@
-## Hi there 👋
+danya. 1997. <i>leather devil.</i>
+<img src="https://sewerwolfx.neocities.org/graphics/graphics/gifs/14grey/60.gif" width="150">
+<br>
+vermis, dorohedoro, ykmet, anthology of the killer.
 
 <!--
 **dorohe/dorohe** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
