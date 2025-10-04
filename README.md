@@ -8,4 +8,5 @@
 *<sub>ykmet and tpof are used as coping<br>
 mechinisms to safely regain control<br>
 over my own experiences of being SA'd.
-<br>all i ask for is understanding.</sub>
+<br>all i ask for is understanding,
+<br>thank you.</sub>
