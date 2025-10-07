@@ -18,5 +18,5 @@ it has given me a sense of safety and control over
 events that have happened to me and has allowed me
 find peace within myself.
 all i ask for is understanding, thank you.</code></sub>
-<br>
+<br><br><br>
 </p>
