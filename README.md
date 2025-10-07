@@ -2,7 +2,6 @@
 <br><b><samp>18+ INT ONLY.</samp></b>
 <br><br>fear and hunger, vermis/godhusk,
 dorohedoro,<br>silent hill, ykmet* and more.
-<br>
 <br><sub><code>+++ art history, sociology, psychology.</code></sub></p>
 
 <p align="center">i'm critical of all my interests,
