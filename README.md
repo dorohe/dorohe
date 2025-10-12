@@ -16,7 +16,7 @@ do not involve <br>me in online discourse.</samp></p>
 regain control over my own experiences of being SA'd.
 it has given me a sense of safety and control over
 events that have happened to me and has allowed me
-find peace within myself.
+find peace within myself. i do not consider myself profic.
 all i ask for is understanding, thank you.</code></sub>
 <br><br><br>
 </p>
