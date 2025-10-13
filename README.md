@@ -4,7 +4,7 @@
 <br>
 <img src="https://files.catbox.moe/k0fn7y.png"><br>
 <samp>fear and hunger, vermis/godhusk,
-dorohedoro,<br>silent hill, ykmet* and more.</samp>
+dorohedoro,<br>crocodile complex, silent hill, ykmet* and more.</samp>
 <br><sub><code>+++ art history, sociology, psychology.</code></sub></p>
 <br>
 <p align="center"><samp>i'm critical of all my interests,
