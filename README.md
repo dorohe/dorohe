@@ -6,7 +6,7 @@
 <img src="https://files.catbox.moe/k0fn7y.png"><br>
 <samp>fear and hunger, vermis/godhusk, look outside,
 dorohedoro,<br>signalis, silent hill, music and more.</samp>
-<br><sub><code>+++ art history, sociology, anthropology.</code></sub></p>
+<br><sub><code>+++ art history, sociology, anthropology, archeology.</code></sub></p>
 <br>
 <p align="center"><code>i'm critical of all my interests,
 do not involve <br>me in online discourse.</code>
