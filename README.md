@@ -5,7 +5,7 @@
 <br><br>
 <img src="https://files.catbox.moe/k0fn7y.png"><br>
 <samp>fear and hunger, vermis/godhusk, look outside,
-dorohedoro,<br>signalis, silent hill, all things leather, music and more.</samp>
+dorohedoro,<br>signalis, silent hill, all things leather, <a href="https://rentry.co/vermiscerebellum">music</a> and more.</samp>
 <br><sub><code>+++ art history, sociology, anthropology, archeology.</code></sub></p>
 <br>
 <p align="center"><code>i'm critical of all my interests,
