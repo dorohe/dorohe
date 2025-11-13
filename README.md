@@ -4,8 +4,7 @@
 <br><sub><code>no dni, just death by my sword.</code></sub>
 <br><br>
 <img src="https://files.catbox.moe/k0fn7y.png"><br>
-<samp>fear and hunger, vermis/godhusk, look outside, guillermo del toro movies,
-<br>dorohedoro, signalis, silent hill, all things leather, music and more.</samp>
+<samp>gender apathetic, educational pervert.</samp>
 <br><sub><code>+++ art history, sociology, anthropology, archeology.</code></sub></p>
 <br>
 <p align="center"><code>i'm critical of all my interests,
