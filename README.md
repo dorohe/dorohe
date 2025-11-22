@@ -4,7 +4,7 @@
 <br><sub><code>no dni, just death by my sword.</code></sub>
 <br><br>
 <img src="https://files.catbox.moe/k0fn7y.png"><br>
-<samp>gender apathetic, educational pervert.</samp>
+<samp>gender apathetic homunculus.</samp>
 <br><sub><code>+++ art history, sociology, anthropology, <a href="https://rentry.co/godhusk">music</a>.</code></sub></p>
 <br>
 <p align="center"><code>i'm critical of all my interests,
