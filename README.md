@@ -1,4 +1,6 @@
-<p align="center"><img src="https://files.catbox.moe/3yp6dm.png" width="300"><br>
+
+<p align="center">
+<br><img src="https://files.catbox.moe/3yp6dm.png" width="300"><br>
 <br><b><samp>18+ INT ONLY.</samp></b>
 <code>married knight.</code>
 <br><samp><i>interests:</i> eldenring, soulsborne,
