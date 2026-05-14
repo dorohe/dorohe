@@ -3,9 +3,8 @@
 <b><samp>18+ INT ONLY</samp></b> ⚔︎
 <code>taken by a witch</code>
 <br><samp><i>interests:</i> eldenring, soulsborne,
-<br>shadowofthecolossus, baldursgate3,
-<br>residentevil, darkestdungeon,
-<br>thelockedtomb.</samp>
+<br>thelockedtomb, baldursgate3,
+<br>residentevil, darkestdungeon.</samp>
 <br><sub><code>i block freely, don't sexualise me. much love.
 lolisho & incest dni.</code></sub>
 <br><br>
