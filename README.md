@@ -5,7 +5,6 @@
 <br><samp><i>interests:</i> eldenring, soulsborne,
 <br>thelockedtomb, baldursgate3,
 <br>residentevil, darkestdungeon.</samp>
-<br><sub><code>i block freely, don't sexualise me. much love.
-lolisho & incest dni.</code></sub>
+<br><sub><code>i block freely, lolisho & incest dni.</code></sub>
 <br><br>
 <img src="https://vinnyvistazo.com/img/decorations/divider/leafy_down.png" height="30"><br></p>
