@@ -4,7 +4,8 @@
 <code>taken by a witch</code>
 <br><samp><i>interests:</i> eldenring, soulsborne,
 <br>shadowofthecolossus, baldursgate3,
-<br>residentevil, darkestdungeon.</samp>
+<br>residentevil, darkestdungeon,
+<br>thelockedtomb.</samp>
 <br><sub><code>i block freely, don't sexualise me. much love.
 lolisho & incest dni.</code></sub>
 <br><br>
