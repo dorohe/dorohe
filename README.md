@@ -1,5 +1,5 @@
 <img src="https://files.catbox.moe/ec6iq4.png" align="left">
-<samp>18+ INT ONLY  ⚔︎</samp>  <code>TAKEN.</code>
+<h3><samp>18+ INT ONLY  ⚔︎</samp>  <code>TAKEN.</code></h3>
 <p></p><sup><code><3</code>
 <samp>eldenring, soulsborne, thelockedtomb,
 <br> baldursgate3, residentevil, darkestdungeon.</samp></sup>
