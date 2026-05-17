@@ -4,5 +4,5 @@
 <br> baldursgate3, darkestdungeon.</samp>
 <br>
 <br><sup><code>i block freely. pro-para, lolisho & incest dni.
-very low social battery, much love.</code></sup>
+very low social battery and poor memory, much love.</code></sup>
 <br><br><img src="https://vinnyvistazo.com/img/decorations/divider/leafy_down.png" height="32"></p>
