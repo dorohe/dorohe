@@ -3,6 +3,6 @@
 <p align="center"><samp>eldenring, soulsborne, thelockedtomb,
 <br> baldursgate3, darkestdungeon.</samp>
 <br>
-<br><sup><code>i block freely. pro-para, lolisho & incest dni.
+<br><sup><code>i block freely. lolisho & incest dni.
 very low social battery and poor memory, much love.</code></sup>
 <br><br><img src="https://vinnyvistazo.com/img/decorations/divider/leafy_down.png" height="25"></p>
