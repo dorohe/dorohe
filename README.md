@@ -1,8 +1,8 @@
-<img src="https://files.catbox.moe/8xk5e0.png" align="left" width="400">
-<h3 align="center"><samp><b>18+ INTERACT ONLY</b></samp> <sub><img src="https://64.media.tumblr.com/13c2a77284a4e5193914789db6a61bd6/0de7e302ef791d5d-c4/s75x75_c1/ed9ef5b2ccd2fd19ec52bd2a85d220c99512a22c.gifv"> </sub><code>TAKEN</code></h3>
+<img src="https://files.catbox.moe/o47y87.png" align="left" width="400">
+<h3 align="center"><sub><img src="https://64.media.tumblr.com/024e01ac83ca04e2e2f9e9e680fbb489/be96f08312ff496e-0e/s400x600/0bf5c84fcdacdde8cc41d5309cc3e6309ecc5a01.gifv" width="20"></sub> <samp><b>DANYA</b><sup>1997.</sup></samp></h3>
 <p align="center"><samp>baldursgate3, soulsborne, thelockedtomb,
 <br>paleontology, sociology, anthropology.</samp>
 <br>
 <br><sup><code>i block freely. lolisho & incest dni.
 very low social battery and poor memory, much love.</code></sup>
-<br><br><img src="https://vinnyvistazo.com/img/decorations/divider/leafy_down.png" height="25"></p>
+<br><br><img src="https://64.media.tumblr.com/1a7a054682a01356d58e87a07bb06f8d/56e679417bba2038-74/s1280x1920/20e60aeba547037645557daf4d4b5451b242f54e.pnj" height="60"></p>
