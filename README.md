@@ -1,4 +1,4 @@
-<img src="https://files.catbox.moe/o47y87.png" align="left" width="400">
+<img src="https://files.catbox.moe/o47y87.png" align="left" width="380">
 <h3 align="center"><sub><img src="https://64.media.tumblr.com/024e01ac83ca04e2e2f9e9e680fbb489/be96f08312ff496e-0e/s400x600/0bf5c84fcdacdde8cc41d5309cc3e6309ecc5a01.gifv" width="20"></sub> <samp><b>DANYA</b><sup>1997</sup></samp></h3>
 <p align="center"><samp>baldursgate3, soulsborne, thelockedtomb,
 <br>paleontology, sociology, anthropology.</samp>
