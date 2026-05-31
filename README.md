@@ -1,6 +1,7 @@
 <img src="https://files.catbox.moe/8xk5e0.png" align="left" width="400">
 <h3 align="center"><sub><img src="https://64.media.tumblr.com/13c2a77284a4e5193914789db6a61bd6/0de7e302ef791d5d-c4/s75x75_c1/ed9ef5b2ccd2fd19ec52bd2a85d220c99512a22c.gifv"></sub><samp> <b>DANYA</b><sup>1997</sup></samp></h3>
-<p align="center"><samp>baldursgate3, soulsborne, thelockedtomb, curseofstrahd,
+<p align="center"><samp>baldursgate3, soulsborne, thelockedtomb,
+<br>curseofstrahd, dungeons&dragons,
 <br>paleontology, sociology, anthropology.</samp>
 <br>
 <br><sup><code>i block freely. lolisho & incest dni.
