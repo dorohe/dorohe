@@ -4,5 +4,5 @@
 <br>28yo.⠀⠀ they/them
 <br><sup>lolisho ⠀& ⠀incest⠀ dni</sup></samp>
 <br><img src="https://64.media.tumblr.com/824fd4652910edb6f8ea76b5590cd963/ca9a377942aa49e9-b6/s2048x3072/62afc3810a6109ed8cebf60bc51eae86e22667db.pnj" width="250px">
-<br><samp><sup>ravenloft autism</sup></samp>
+
 </div>
