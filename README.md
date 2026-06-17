@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://files.catbox.moe/i2t1i4.gif"><img src="https://files.catbox.moe/6ogaft.gif">
+<img src="https://files.catbox.moe/yz3dfi.png" width="200px">
 <br><samp><a href="https://rentry.co/godhusk">danya</a>⠀⠀ <i>or</i> ⠀⠀<a href="https://rentry.co/lyrelark">lyre</a>
 <br>28yo.⠀⠀ they/them
 <br><sup>lolisho ⠀& ⠀incest⠀ dni</sup></samp>
