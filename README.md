@@ -1,6 +1,8 @@
 <div align="center">
-<br><img src="https://skalitz.neocities.org/saddddddddddddjhk.png" width="100px">
+<br><img src="https://files.catbox.moe/1g0erv.png" width="150px">
 <i><br>20+ interact only.
 <br>i hide often, much love.</samp></i>
- </sub></i>
+ 
+<br>🧡 sociology, zoology,
+<br>history & more.</sub></i>
 </div>
