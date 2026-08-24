@@ -3,8 +3,5 @@
 <i><br>20+ interact only.</i>
  <br>incest and lolisho dni
 <br>i hide often, much love.</samp></i>
- 
-<br>🧡 sociology, zoology,
-<br>paleontology, history
-<br>& more.</sub></i>
+<br><a href="https://rentry.co/merlinkeep">about me</a> <a href="https://puffin.atabook.org/">guestbook</a>
 </div>
