@@ -5,5 +5,6 @@
 <br>i hide often, much love.</samp></i>
  
 <br>🧡 sociology, zoology,
-<br>history & more.</sub></i>
+<br>paleontology, history
+<br>& more.</sub></i>
 </div>
